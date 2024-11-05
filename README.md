@@ -11,3 +11,4 @@ Aqui estão algumas ideias para você começar:
 - ⚡ Curiosidade: green eyes
 
 ![alura](www.alura.com.br)
+![](https://tenor.com/pt-BR/view/i-love-you-too-gif-10865184219962493533)
